@@ -2,5 +2,5 @@
 2024 Semester 1 Second Assignment
 Group Members
 1.Rezwanul Islam-21632031
-2 Durant
+2 Yulin Zhou_21457072
 3.Arfan Shahriar - 22048943
